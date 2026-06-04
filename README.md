@@ -7,7 +7,7 @@ hi hey ! this read.me is pretty much wip, sorry #gotlazy 👀 anyways call me by
 
 im very shy at first pls start convo first im rlly shy ;´-｀
 
-KINs ; unicorn jimbo and jade are my **heavy** kin !! doug , discard and barry are my normal kin 
+KINs ; jade are my **heavy** kin !! doug , discard and barry are my normal kin IDK ABOUT THE OTHER ILL LIST LATER WAAAHH
  doubles are ok !!! 
 
  INTEREST ; homestuck , gnb , blocktales , toons universe , dollys factory + etc
