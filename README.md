@@ -1,15 +1,14 @@
 ![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=9ed7e6&style=flat&label=observers) 
 
-![](https://files.catbox.moe/lewex8.png)
+![](https://files.catbox.moe/mpwiqj.png)
+
 
 <div align="center">
-rmking 
-
- 
-  jade , uni + other kin names
- 
- c+h is ok i love c+h n int so feel free to unless name states otherwise 
+<p> ${{\color{#9ed7e6}{\textsf{uni / dirk + jade}}}}$ </p>
+ <p>${{\color{#884C54}{\textsf{c + h and int r ok , pls int me ok? i dont bite}}}}$</p>
 <!--
+
+
 **cola-flavour/cola-flavour** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
