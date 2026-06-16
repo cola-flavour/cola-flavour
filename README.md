@@ -1,11 +1,11 @@
-![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=9ed7e6&style=flat&label=observers) 
+![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=C2B028&style=flat&label=observers) 
 
-![](https://files.catbox.moe/mpwiqj.png)
+![](https://files.catbox.moe/v7y0n8.png)
 
 
 <div align="center">
-<p> ${{\color{#9ed7e6}{\textsf{uni / dirk + jade}}}}$ </p>
- <p>${{\color{#884C54}{\textsf{c + h and int r ok , pls int me ok? i dont bite}}}}$</p>
+<p> ${{\color{#C2B028}{\textsf{uni / mob + jade}}}}$ </p>
+ <p>${{\color{#463B3D}{\textsf{c + h and int r ok , pls int me ok? i dont bite}}}}$</p>
 <!--
 
 
