@@ -1,3 +1,8 @@
+<div align="center">
+ 
+ 
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lora&pause=900&color=FFFFFF&width=435&lines=i+could+have+run+further+...;but+i+didnt+...)](https://git.io/typing-svg)
+
 ![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=C2B028&style=flat&label=observers) 
 <div align="center">
  <img src="https://files.catbox.moe/v7y0n8.png" width="400" alt="Resized Image">
