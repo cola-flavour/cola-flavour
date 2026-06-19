@@ -1,24 +1,12 @@
 ![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=C2B028&style=flat&label=observers) 
+<div align="center">
+ <img src="https://files.catbox.moe/v7y0n8.png" width="400" alt="Resized Image">
+ 
+ 
+<img src="https://files.catbox.moe/1dht8z.png" width="300" alt="Resized Image">
 
-![](https://files.catbox.moe/v7y0n8.png)
 
 
 <div align="center">
-<p> ${{\color{#C2B028}{\textsf{uni / mob + jade}}}}$ </p>
- <p>${{\color{#463B3D}{\textsf{c + h and int r ok , pls int me ok? i dont bite}}}}$</p>
-<!--
-
-
-**cola-flavour/cola-flavour** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p> ${{\color{#C2B028}{\textsf{" you drive me crazzyyy !! "}}}}$ </p>
+ <p>${{\color{#463B3D}{\textsf{c + h and int r ok , pls int me ok? i dont bite}}}}$</p> <img src="https://files.catbox.moe/y0na6t.png" width="150" alt="Resized Image">
