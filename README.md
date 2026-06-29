@@ -1,14 +1,14 @@
 <div align="center">
  
  
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lora&pause=900&color=FFFFFF&width=435&lines=i+could+have+run+further+...;but+i+didnt+...)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lora&pause=900&color=D7A26D&width=435&lines=your+sanity+is+important+...;DONT+die+on+me+.)](https://git.io/typing-svg)
 
-![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=C2B028&style=flat&label=observers) 
+![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=D7A26D&style=flat&label=observers) 
 <div align="center">
- <img src="https://files.catbox.moe/v7y0n8.png" width="400" alt="Resized Image">
+ <img src="https://files.catbox.moe/faj339.png" width="400" alt="Resized Image">
  
  
-<img src="https://files.catbox.moe/1dht8z.png" width="300" alt="Resized Image">
+<img src="https://files.catbox.moe/m6lwc9.png" width="300" alt="Resized Image">
 
 
 
