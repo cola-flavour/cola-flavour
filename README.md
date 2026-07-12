@@ -13,9 +13,5 @@
 
 
 <div align="center">
-<p> ${{\color{#C2B028}{\textsf{" you drive me crazzyyy !! "}}}}$ </p>
- <p>${{\color{#463B3D}{\textsf{c + h and int r ok , pls int me ok? i dont bite}}}}$</p> <img src="https://files.catbox.moe/y0na6t.png" width="150" alt="Resized Image">
-
-![](https://files.catbox.moe/u3ndys.gif)
-![](https://files.catbox.moe/lpd5pb.gif)
-![](https://files.catbox.moe/v0yr85.gif)
+<p> ${{\color{#C2B028}{\textsf{  iwc sometimes , i have chronic migraine daily  }}}}$ </p>
+ <p>${{\color{#463B3D}{\textsf{c + h and int r ok , pls int me ok? i dont bite}}}}$</p>
